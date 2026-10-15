@@ -1,4 +1,4 @@
-# Cold Call Chaos: Privacy Policy
+# Scam Call Simulator 3D: Privacy Policy
 
 The privacy policy for the Android game **Cold Call Chaos** by Mad Axe Studios.
 
